@@ -1,4 +1,5 @@
-Saya Sheno Hendi
-pelajar Smk Ti Dwiguna
-Umur Saya 16 tahun
-Ingin mengupload codingan saya 
+halo saya pelajar 
+saya pelajar asal kota depok 
+saya bersekolah di sekolah menengah kejuruan 
+saya berasal dari kota bogor 
+saya lahir dari tanah pasundan 
